@@ -1,0 +1,1 @@
+# SATySFi-fonts-noto-sans-jp
